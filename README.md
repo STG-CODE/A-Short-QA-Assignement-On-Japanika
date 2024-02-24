@@ -1,0 +1,1 @@
+# A-Short-QA-Project-On-Japanika
